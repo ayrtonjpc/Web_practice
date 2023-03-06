@@ -19,5 +19,5 @@ I'm constantly learning to make everything funnier
 
 #### Contact
 
--[Instagram](https://instagram.com/airetonjairi
+- [Instagram](https://instagram.com/airetonjairi)
 - ayrtonjairpereira@gmail.com
